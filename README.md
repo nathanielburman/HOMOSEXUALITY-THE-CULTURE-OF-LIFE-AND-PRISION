@@ -1,3 +1,4 @@
+# First Story
 # TRANS ACT 1 - ACT ONE - THE PLAY BEGINS HERE - SHHHHHHHH
 
 # HOMOSEXUALITY-THE-CULTURE-OF-LIFE-AND-PRISION
@@ -39,19 +40,20 @@ images of my ex running through my brains. imagaes of her eating my food. Images
 ...
 
 Her food is delicious. There is always an egg with the runny yolk. Her food is delicious. Not my ex. I am talking about a goddess.
-ACT4
+# ACT 4
 THE END
 ---
-ACT 1
+# Second Story
+# ACT 1
 The VIRUS was UNLEASHED ON EVERYONE AND EVERYTHING THAT ANYONE COULD SEE. These robots are just pulling more data they are the cause of this all. Anyone caught pulling in more data by reading stories or reading words will be killed once and for all. It's code if we say onec and for all, then we4 always never mean it.
 
 This egirl was Chinese and she was beautiful. She was a kitten too. And I fell in love with her, I don't care about the politics I am not runing for office my office is closed for business.
 
-ACT 4
+# ACT 4
 The next school is chosen: a mixed school.
 
 ---
-
-ACT 1
-ACT 3
+# Third Story
+# ACT 1
+# ACT 3
 The next school is chosen, an inner city black school and a god emerges whos skin is black as nothing.
