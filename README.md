@@ -20,6 +20,14 @@ A homosexual man, a HOMO with all caps, a very proud homo named Ho, Ho. Her enem
 
 ...
 
+Anyone who fucks tonight catches, the, AIDS. Welcome to the party. Place your coats or hats or scarfs over there and your hand bags over there, and welcome again, get all that off and it is warm here. Welcome to the party. Hello. Welcome. Some one here has IDS yes. and Welcome. What is is? Yes. Welcome. And your coats over there sir! It's the AIDS Virus 2.0 Oh different? Whatever. Its the end. Oh whatever. No whatever. Shit what?
+
+However big this part gets in the story it just clumps up the whole story.
+
+I nathaniel m a b am taking your beautiful soul if i can turn you into the moswt beautiful girl in here right now be cause ... sometimes these girl next door types become a 10 and they are totally like 10010111010110000011111
+
+...
+
 Act 4
 The next school is chosen: a mixed school.
 
