@@ -33,6 +33,8 @@ I nathaniel m a b am taking your beautiful soul if i can turn you into the moswt
 images of my ex running through my brains. imagaes of her eating my food. Images of her eating her food. i ate her food. and i liked her food. i liked eating her food. her food became my food. i owned that food by the time even before it went into my mouth i owned that food and it dripped down ewwww gross.
 ...
 
+Her food is delicious. There is always an egg with the runny yolk. Her food is delicious. Not my ex. I am talking about a goddess.
+
 Act 4
 The next school is chosen: a mixed school.
 
