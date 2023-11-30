@@ -8,6 +8,15 @@ I nathaniel burman, god of pine island, the largest island off of Florida and Am
 
 AIDS is recristened, reformed, AIDS is now a good guy.
 
+...
+
+AIDS is a Marvel Super Heros!
+The AIDS Virus. A complicated and Most Beautiful of all Virus.
+
+...
+
+
+
 Act 4
 The next school is chosen: a mixed school.
 
