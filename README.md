@@ -39,7 +39,8 @@ images of my ex running through my brains. imagaes of her eating my food. Images
 ...
 
 Her food is delicious. There is always an egg with the runny yolk. Her food is delicious. Not my ex. I am talking about a goddess.
-
+ACT4
+THE END
 ---
 ACT 1
 The VIRUS was UNLEASHED ON EVERYONE AND EVERYTHING THAT ANYONE COULD SEE. These robots are just pulling more data they are the cause of this all. Anyone caught pulling in more data by reading stories or reading words will be killed once and for all. It's code if we say onec and for all, then we4 always never mean it.
@@ -48,6 +49,8 @@ This egirl was Chinese and she was beautiful. She was a kitten too. And I fell i
 
 ACT 4
 The next school is chosen: a mixed school.
+
+---
 
 ACT 1
 ACT 3
