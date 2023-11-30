@@ -12,10 +12,13 @@ AIDS is recristened, reformed, AIDS is now a good guy.
 
 AIDS is a Marvel Super Heros!
 The AIDS Virus. A complicated and Most Beautiful of all Virus.
+She is pissed.
 
 ...
 
+A homosexual man, a HOMO with all caps, a very proud homo named Ho, Ho. Her enemy, with blond hair sitting there on his head like it doesnt give a fuck. That hair lays there even, streatching out long on his head, flicking its toes and streatching out all the way. The prison is run by injustice and this homosexual is breaking out of prison, where he controls itk today.
 
+...
 
 Act 4
 The next school is chosen: a mixed school.
