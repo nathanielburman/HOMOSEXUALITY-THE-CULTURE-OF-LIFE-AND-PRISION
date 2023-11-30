@@ -47,7 +47,9 @@ THE END
 # ACT 1
 The VIRUS was UNLEASHED ON EVERYONE AND EVERYTHING THAT ANYONE COULD SEE. These robots are just pulling more data they are the cause of this all. Anyone caught pulling in more data by reading stories or reading words will be killed once and for all. It's code if we say onec and for all, then we4 always never mean it.
 
-This egirl was Chinese and she was beautiful. She was a kitten too. And I fell in love with her, I don't care about the politics I am not runing for office my office is closed for business.
+## This egirl was Chinese and she was beautiful. She was a kitten too. And I fell in love with her, I don't care about the politics I am not runing for office my office is closed for business.
+
+## I want to love on her so much right now. Let this be AIDS 2.0 I Love ZYou Chinese Beautiful Lover. I Love You. Becasuse It Feels Like Amazing! Whoah!
 
 # ACT 4
 The next school is chosen: a mixed school.
