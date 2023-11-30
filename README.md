@@ -27,7 +27,7 @@ However big this part gets in the story it just clumps up the whole story.
 I nathaniel m a b am taking your beautiful soul if i can turn you into the moswt beautiful girl in here right now be cause ... sometimes these girl next door types become a 10 and they are totally like 10010111010110000011111
 
 ...
-<img src="></img>
+<img src="https://github.com/nathanielburman/HOMOSEXUALITY-THE-CULTURE-OF-LIFE-AND-PRISION/blob/main/mylove01kitten.jpg" width="377px"></img>
 
 ..
 images of my ex running through my brains. imagaes of her eating my food. Images of her eating her food. i ate her food. and i liked her food. i liked eating her food. her food became my food. i owned that food by the time even before it went into my mouth i owned that food and it dripped down ewwww gross.
