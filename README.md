@@ -8,6 +8,8 @@ I nathaniel burman, god of pine island, the largest island off of Florida and Am
 
 AIDS is recristened, reformed, AIDS is now a good guy.
 
+<img src="https://github.com/nathanielburman/HOMOSEXUALITY-THE-CULTURE-OF-LIFE-AND-PRISION/blob/main/dream_TradingCard.jpg" width="550px"></img>
+
 ...
 
 AIDS is a Marvel Super Heros!
